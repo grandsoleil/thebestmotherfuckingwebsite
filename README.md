@@ -1,1 +1,1 @@
-https://grandsoleil.github.io/bestmotherfuckingwebsite/
+https://grandsoleil.github.io/thebestmotherfuckingwebsite/
